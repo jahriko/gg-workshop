@@ -12,3 +12,6 @@ Jericho Opsima
 Edel Jhonrex Sarzuelo
 
 
+Jenny Cano
+Kzel Lecomes
+
