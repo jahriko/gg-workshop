@@ -10,3 +10,6 @@
 
 Jericho Opsima
 
+Jenny Cano
+Kzel Lecomes
+
